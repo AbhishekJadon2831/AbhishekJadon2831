@@ -47,7 +47,7 @@ Dr. Bhimrao Ambedkar University, Agra
 
 * 📧 Email: [abhishekjadon616@gmail.com](mailto:abhishekjadon616@gmail.com)
 * 📱 Phone: +91 9548991053
-* 🔗 LinkedIn: [linkedin.com/in/abhishekagra](https://linkedin.com/in/abhishekagra)
+* 🔗 LinkedIn: [linkedin.com/in/abhishekjadon2831](https://www.linkedin.com/in/abhishekjadon2831/)
 
 ---
 
